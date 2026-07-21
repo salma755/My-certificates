@@ -26,4 +26,3 @@ Participating in random courses to discover myself ♡♡
 
 <img width="788" height="532" alt="image" src="https://github.com/user-attachments/assets/0873c0b1-f1e0-4e41-9ab2-04b31ddf8a23" />
 
-<img width="788" height="532" alt="image" src="https://github.com/user-attachments/assets/2a05fb4b-58b2-435b-b57f-2d38429c82d2" />
