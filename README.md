@@ -26,5 +26,6 @@ Participating in random courses to discover myself ♡♡
  
  2) The next step was joining the college team, and it served as a motivation to interact with students. It was a period full of randomness, but the decision to step away came because I realized my goal was the college projects, not social relationships and joining the organization.
 
-<img width="788" height="532" alt="image" src="https://github.com/user-attachments/assets/0873c0b1-f1e0-4e41-9ab2-04b31ddf8a23" />
+<img width="1012" height="767" alt="image" src="https://github.com/user-attachments/assets/389b14d2-2a7e-48d6-9bf4-30c2ad6b3dde" />
+
 
