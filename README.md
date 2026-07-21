@@ -9,12 +9,18 @@ Participating in random courses to discover myself ♡♡
 
 1) My latest contributions are the international certificates because of their importance, and I decided to share them since I applied for the final exam in these tracks and passed it.
    
-<img width="788" height="532" alt="image" src="https://github.com/user-attachments/assets/9bc8b80d-5e74-4b2e-bbaf-a1fad91199d0" />
-<img width="788" height="532" alt="image" src="https://github.com/user-attachments/assets/e5b1b3f1-bdaa-43c3-9161-15a3d6f8b67b" />
-<img width="788" height="532" alt="image" src="https://github.com/user-attachments/assets/865321a2-0700-47ce-ad9f-bfb880cd7514" />
-<img width="788" height="532" alt="image" src="https://github.com/user-attachments/assets/bed307a0-3ec1-429e-8ada-03624ef06601" />
-<img width="788" height="532" alt="image" src="https://github.com/user-attachments/assets/9fffd8ef-9a10-43e8-88dd-c036b5388230" />
+[<img width="788" height="532" alt="image" src="https://github.com/user-attachments/assets/9bc8b80d-5e74-4b2e-bbaf-a1fad91199d0" />](https://www.credly.com/badges/734c9b99-c74d-4b91-acb3-1a45c744cb4a/public_url)
 
+[<img width="788" height="532" alt="image" src="https://github.com/user-attachments/assets/e5b1b3f1-bdaa-43c3-9161-15a3d6f8b67b" />](https://www.credly.com/badges/6d18ddc3-fee9-4df8-89de-a65f6677bc3b/public_url)
+
+[<img width="788" height="532" alt="image" src="https://github.com/user-attachments/assets/865321a2-0700-47ce-ad9f-bfb880cd7514" />](https://www.credly.com/badges/d526c0da-ab67-4e44-9ad4-35329f4766d7/public_url)
+
+[<img width="788" height="532" alt="image" src="https://github.com/user-attachments/assets/bed307a0-3ec1-429e-8ada-03624ef06601" />](https://www.credly.com/badges/c6a77314-3ffa-4a55-a438-09d1e09b8f1d/public_url)
+
+[<img width="788" height="532" alt="image" src="https://github.com/user-attachments/assets/9fffd8ef-9a10-43e8-88dd-c036b5388230" />
+ ](https://www.credly.com/badges/05c475f5-3925-492a-9da7-8f855911a33e/public_url)
+ 
+ ---------------------------------------------------------------------------------->>>>>
  
  2) The next step was joining the college team, and it served as a motivation to interact with students. It was a period full of randomness, but the decision to step away came because I realized my goal was the college projects, not social relationships and joining the organization.
 
